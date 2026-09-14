@@ -1,1 +1,1 @@
-# Nika-s-TraderTrack
+# Nika-s-TraderTrack and Journal
